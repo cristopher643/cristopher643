@@ -1,4 +1,4 @@
-## 👋 Hi, I’m @cristopher643 
+## 👋 Hi, I’m cristopher ★
 - 👀 I’m interested in learn
 - 🌱 I’m currently learning englesh
 
